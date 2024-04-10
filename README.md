@@ -1,16 +1,21 @@
-### Hi there 👋
+### The Maris
 
-<!--
-**themarisvt/themarisvt** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+The Maris tọa lạc mặt tiền đường 3 tháng 2, Phường 10, Thành Phố Vũng Tàu. Dự án do TDG Group phát triển với quy mô 23 hecta có 192 căn biệt thự và 598 căn hộ nghỉ dưỡng. The Maris Vũng Tàu được kiến tạo theo mô hình quần thể nghỉ dưỡng 5 sao tạo lập nên một thiên đường vui chơi, giải trí, nghỉ dưỡng đẳng cấp nhất Thành Phố Biển Vũng Tàu. Nơi kiến tạo cuộc sống thượng lưu, tận hưởng giá trị sống đích thực với cảm xúc thăng hoa tìm thấy sự bình yên và hạnh phúc.
 
-Here are some ideas to get you started:
+Thông tin liên hệ:
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+Hotline: 0879566282
+
+Email: sale@themarisvungtaus.com
+
+Address: Đường 3 Tháng 2, Phường 10, Thành Phố Vũng Tàu
+
+Website: https://themarisvungtaus.com/
+
+https://themarisvungtaus.com/tin-tuc/
+
+https://www.facebook.com/THEMARISVUNGTAUSofficial
+
+https://twitter.com/themarisvt
+
+https://www.pinterest.com/themarisvt/
